@@ -32,4 +32,3 @@
     * Hombres y tradición
 1. ¿Qué diferencias entre España y el resto de Europa hace posible que preserve España mejor que ellos en su paisaje?
     * Las identidades de los pueblos individuos y la tendencia de encastillarse.
-    
